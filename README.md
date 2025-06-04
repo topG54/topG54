@@ -2,7 +2,7 @@
 - 👀 I’m interested in: forming an anti rust organisation
 - 🌱 I’m currently learning: about how stupid rust is
 - 💞️ I’m looking to collaborate on: time travel
-- 📫 How to reach me: cant touch me
+- 📫 How to reach me: hustlers university
 - 😄 Pronouns: genius/topG
 - ⚡ Fun fact: 180IQ
 
